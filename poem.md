@@ -7,3 +7,15 @@ And be one travler, long I stood
 And looked down one as far as I could
 
 To where it bnt in the undrgrowth;
+
+
+
+Then took the othr, as just as fair,
+
+And havin perhaps the beter claim
+
+Because it was grasy and wanted wear,
+
+Though as for that the pasing there
+
+Had worn them realy about the saem,
