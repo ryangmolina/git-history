@@ -10,15 +10,15 @@ To where it bnt in the undrgrowth;
 
 
 
-Then took the othr, as just as fair,
+Then took the other, as just as fair,
 
-And havin perhaps the beter claim
+And having perhaps the better claim
 
-Because it was grasy and wanted wear,
+Because it was greasy and wanted wear,
 
-Though as for that the pasing there
+Though as for that the passing there
 
-Had worn them realy about the saem,
+Had worn them really about the same,
 
 
 
